@@ -1,1 +1,1 @@
-sz1# gamlet
+1# gamlet
