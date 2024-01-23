@@ -3,7 +3,4 @@ sasаввывпывcxzcCASXA
 sdscscsa
 dsgsd
 gfgdf
-ddsdfscsafdsfsfe
-zxsdsad
-sfsdfsf
-rfgaewerwr
+ddsdfscs
