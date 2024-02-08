@@ -2,8 +2,6 @@ sdsxzletSF
 sas
 gsgdgdfxgbdfx
 vb
-dfgdfgdfgdgg
-grg
-cxzccS
+dfgS
 gdsgsgDSVFF
 cvfvcxvxvx
